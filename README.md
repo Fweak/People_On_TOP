@@ -9,3 +9,6 @@
 #### ADOLF = IFYKYK
 #### ZAC = OG MEMBER
 #### ANARCHY = THE BEST EDATER ON CORD ( I HCEATED ON POST WITH HJIM )
+
+
+###### i guess sin.....
