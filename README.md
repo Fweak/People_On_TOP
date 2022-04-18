@@ -1,6 +1,8 @@
 # PEOPLE ON TOP FR FR 
 ## ON HOOD
 
+# DROPOUT BEST
+### CODEDISEASE ON TOP!!!
 #### SQUISH ON TOP
 #### TOSTRING ON TOP
 #### POSTUWU = OMFG MY BFFF <3 <3 [follow or ur gh account mine](https://github.com/post04)
